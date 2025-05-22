@@ -1,12 +1,5 @@
 # Glow
 
-![DECC](images/decc.jpg)
-![DECCO](images/deccco.jpg)
-![DECCO](images/decco.jpg)
-![DECCOC](images/deccoc.jpg)
-![DECCOCO](images/deccoco.jpg)
-
-
 Homemade DIY GloW Bloom Deco Vase with Built-in LED lighting for a magical glow at night
 I engineered this innovative DIY GloW Bloom Deco Vase with Built-in LED lighting for a magical glow at night.
 
@@ -23,3 +16,10 @@ Handcrafted — no two pieces are the same!
 💬 DM now to order yours or customize your own style!
  📦 Nationwide delivery available.
 📸 hashtag#GlowBloom hashtag#CreativeCrafts hashtag#HomeDecor hashtag#EcoFriendlyArt hashtag#HandmadeWithLove
+
+![DECC](images/decc.jpg)
+![DECCO](images/deccco.jpg)
+![DECCO](images/decco.jpg)
+![DECCOC](images/deccoc.jpg)
+![DECCOCO](images/deccoco.jpg)
+
