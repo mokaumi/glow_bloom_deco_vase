@@ -7,6 +7,9 @@
 ![DECCOCO](images/deccoco.jpg)
 
 
+Homemade DIY GloW Bloom Deco Vase with Built-in LED lighting for a magical glow at night
+I engineered this innovative DIY GloW Bloom Deco Vase with Built-in LED lighting for a magical glow at night.
+
 ✨ Introducing the GlowBloom Deco Vase! ✨
  Looking for a one-of-a-kind centerpiece that brings color, light, and creativity into your home or office? Meet the GlowBloom Deco Vase — a handcrafted masterpiece made with love, light, and a dash of innovation.
 🌺 Features:
